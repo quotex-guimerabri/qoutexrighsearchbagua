@@ -1,0 +1,1 @@
+# qoutexrighsearchbagua
